@@ -1,2 +1,2 @@
 Hey there!
-I'm TheCaptainBuster, a 16 year old aspiring Indie Game Developer
+I'm TheCaptainBuster, a 17 year old aspiring Indie Game Developer
